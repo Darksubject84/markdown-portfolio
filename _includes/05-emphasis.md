@@ -1,1 +1,1 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+I'm a **BOLD** leader, a *Smooth* operator and have one hell of a :smiley: :heart: 
